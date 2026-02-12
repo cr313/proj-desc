@@ -8,4 +8,9 @@ Upwork also has a dedicated space that helps U.S. clients find local freelancers
 
 How about working together? If you allow me to use your Upwork account remotely, I’ll secure projects, deliver the services, and share 20% of the income with you.
 
+Let me know if you're interested.
+
 Thank you for your time and consideration.
+
+Chris
+christianrobertson296@gmail.com
